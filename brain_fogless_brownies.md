@@ -3,7 +3,8 @@
 ## Ingredients
 
 ### Dry Ingredients
-- **300g** Oats 
+
+- **300g** Oats
 - **220g** Hemp seed protein powder
 - **120g** Seeds (e.g.,  pumpkin and/or sunflower seeds)
 - **100g** Shredded coconut
@@ -17,7 +18,7 @@
 
 - **1 1/2 cup** (240ml) Milk
 - **1/2 cup** (120ml) Unsweetened Applesauce or Mashed Banana
-- **1/2 cup** (120ml) Raw Organic Honey 
+- **1/2 cup** (120ml) Raw Organic Honey
 - **1 1/2 cup** (350ml) Peanut butter (Mayvers Smooth)
 
 ## Instructions
