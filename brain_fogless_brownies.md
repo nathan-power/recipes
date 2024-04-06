@@ -1,4 +1,4 @@
-# Brain Fogless Brownies Recipe
+# Brain Fogless Brownies
 
 ## Ingredients
 
