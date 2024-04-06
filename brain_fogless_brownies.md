@@ -22,7 +22,7 @@
 
 ## Instructions
 
-1. **Preheat Oven**: Preheat your oven to 350°F (175°C).
+1. **Preheat Oven**: Preheat your oven to 180°C.
 
 2. **Mix Dry Ingredients**: In a large bowl, combine oats, seeds, hemp seed protein powder, bran, almonds, shredded coconut, cinnamon, and cocoa.
 
@@ -32,7 +32,7 @@
 
 5. **Press into Pan**: Line your pan with parchment paper, transfer the mixture, and press down firmly into an even layer, then pre-cut into bars.
 
-6. **Bake**: Bake for 20 minutes at 350°F (175°C) until edges are golden brown.
+6. **Bake**: Bake for 20 minutes at 180°C until edges are golden brown.
 
 7. **Cool and Cut**: Allow the baked mixture to cool in the pan, then cut again into bars.
 
